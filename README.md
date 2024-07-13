@@ -21,7 +21,7 @@ I'm [Ahmed Elsayed], a passionate Software Engineer and Dentist.
 
 🌐 Let's Connect
 
-• LinkedIn: [https://www.linkedin.com/in/ahmed-elsayed-336693173/]
+• LinkedIn: [www.linkedin.com/in/drahmed-elsayed]
 
 • linktree: [https://linktr.ee/drahmedelsayed]
 
